@@ -18,69 +18,57 @@
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 
 
-<p align="right"> " Call us <img src="https://i.ibb.co/mCSQ5g5q/emo2.gif" alt="emo2" border="0"> <ins><strong><s>///</s></strong></ins> ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> <ins><strong><s>///</s></strong></ins> ${\textsf{\color{#6E3FA3}Bittergiggle}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> <ins><strong><s>///</s></strong></ins> ${\textsf{\color{#ffffff}Lamb}}$ or ${\text{\color{#615c4c}Rat}}$ 🐑🐀 </p>
+«« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
 
-<p align="center">"<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}garten of banban}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` <ins><strong><s>||</s></strong></ins> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#ffffff}cult of the lamb}}$ 🐑🐏</p>
+![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)
 
-<img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#93dbe6}sally face}}$ <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> `rick and morty` <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#fc0349}valentine [hazbin hotel]}}$ ![heart](https://github.com/user-attachments/assets/3a3c7ee1-e2d0-40a1-9018-14ceb322d058)
+" Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ <img src="https://i.ibb.co/mCSQ5g5q/emo2.gif" alt="emo2" border="0"> **`///`** ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** ${\textsf{\color{#6E3FA3}Bittergiggle}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> **`///`** ${\textsf{\color{#ffffff}Lamb}}$ or ${\text{\color{#615c4c}Rat}}$ 🐑🐀
 
+<p align="left"> <details align="left">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#61109c}About me}}$ ღ </summary> <a href="https://pluralpedia.org/w/Traumagenic"><code>Traumagenic</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Atrium_System"><code>Atrium</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Kingenic"><code>Kingenic</code></a> <i>system of 200+ alters!!</i> <br> <i>20+ with a child! Ive also been in regis since 2018/2016! <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0"></i>ㅤ<br> <strong><code>BPD/NPD/<a href="https://my.clevelandclinic.org/health/diseases/9743-histrionic-personality-disorder">HPD</a>/ADHD</code></strong> <ins><strong><s>||</s></strong></ins> <code>Dyslexia/Autism/Schizophrenia</code> <br> <strong><code><a href="https://en.wikipedia.org/wiki/Periodic_paralysis">Periodic paralasys</a><strong>/</strong><a href="https://www.ucsfhealth.org/conditions/mild-cognitive-impairment">MCI</a></strong></code> <br> </details>
+
+<p align="left"> <details align="left">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#580b8f}Things I like}}$ ღ </summary> "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}garten of banban}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> <code>pokemon[mimikyu]</code> <br> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#ffffff}cult of the lamb}}$ 🐑🐏ㅤ<br>  <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> ${\textsf{\color{#93dbe6}sally face}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> <code>undertale</code> <br> ${\textsf{\color{#fc0349}valentine [hazbin hotel]}}$ 🖤 <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> <code>rick and morty</code> <br> </details>
+
+<p align="left"> <details align="left">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#4b0a7a}Stances}}$ ღ </summary> <a href="https://transid.org/books/stances/page/radqueer">Radqueer</a> <ins><strong><s>||</s></strong></ins> <i><code>Anti-Harrassment</code></i>  <br> <strong>No contact for harmful paras aswell as <code>pro-recovery</code> for them</strong>ㅤ<br> <i>I have no stance on transid, I dont care if your transharmful, I simply dont want to hear about it.</i> <br> <i>${\textsf{\color{#9e54e8}I do not claim the}}$ <a href="https://transid.org/books/stances/page/xenosatanism">xenosatanists</a> ${\textsf{\color{#9e54e8}as part of it nor do i support them}}$</i> <br> </details>
+
+<p align="left"> <details align="left">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#400669}Education / My Sites}}$ ღ </summary> <a href="https://thesinsofyourfleshmayburnyou.carrd.co"><i>carrd</i></a> <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> <a href="https://rentry.co/AMERlCANlDlOT"><i>rentry</i></a> <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a> <a href="https://taste-of-flesh.straw.page"><i>strawpage</i></a> <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> <a href="https://cannibalisticmindset.atabook.org"><i>atabook</i></a> <br> <a href="https://proshipresourcesaccessible.carrd.co/#"><strong><code>Proship Info</code></strong></a> <ins><strong><s>///</s></strong></ins> <a href="https://define-proship.carrd.co/"><strong><code>Proship Info 2</code></strong></a> <br> <a href="https://powertotheplurals.com/origin-of-endogenic-and-traumagenic-system-terminology-guest-post-by-the-trashcan-collective/"><strong><code>Endo Info</code></strong></a> <ins><strong><s>///</s></strong></ins> <a href="https://endoresource.carrd.co/"><strong><code>Endo Info 2</code></strong></a> <br> <a href="https://www.psychiatry.org/File%20Library/Psychiatrists/Practice/DSM/APA_DSM-5-Paraphilic-Disorders.pdf"><strong><code>Para Info</code></strong></a> <br> </details>
+
+![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)
 
 «« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
 
-*I am* [`Radqueer`](https://transid.org/books/stances/page/radqueer) *aswell as* <img width="48" height="29" alt="transsallyface1" src="https://github.com/user-attachments/assets/4f9ad583-e395-4f9e-870f-37216b99fac3" /> [`TransSallyFace`](https://transid.org/books/transcharacter-transperson/page/transsallyface) <ins>**~~/~~**</ins> [`TransLamb`](https://transid.org/books/transspecies/page/transsheep) <img width="45" height="27" alt="translamb1" src="https://github.com/user-attachments/assets/210b540f-24f6-4b73-bddc-3a52f38b40d9" />
+<img width="410" height="150" alt="stars" src="https://github.com/user-attachments/assets/f12337a7-e132-4c20-b689-6fd2f7375080" />
 
-*No contact for harmful paras aswell as pro-recovery for them. I am neu transid, I dont care if your transharmful, I simply dont want to hear about it. I do **not** claim the [xenosatanists](https://transid.org/books/stances/page/xenosatanism) as part of it nor do i support them*
+![heels-ezgif com-resize](https://github.com/user-attachments/assets/42bb2195-108d-4da5-8faf-1532aaca9d15)
 
-«« <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> »»
- 
-> <img src="https://i.ibb.co/39D529VX/weppon-blood.webp" alt="weppon-blood" border="0"> 
->
->   **<img src="https://i.ibb.co/fzKKySnQ/drums.gif" alt="drums" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** [`nameself pronouns`](https://pronoun.fandom.com/wiki/Nameself_Pronouns) <img src="https://i.ibb.co/2YdfQLWt/games-pkm2.gif" alt="games-pkm2" border="0"> 
->
-> 
-> **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** honestly ${\textsf{\color{#FF218C}what am}}$ ${\textsf{\color{#FFD800}i even}}$ ${\textsf{\color{#21B1FF}doing here.}}$ <img src="https://i.ibb.co/pBKWMCwb/circus.gif" alt="circus" border="0">⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**  <ins>~~***///***~~</ins>  ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=the+local+homeless+population&abbreviated=true).
-> 
-> **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** [`Traumagenic`](https://pluralpedia.org/w/Traumagenic) / [`Atrium`](https://pluralpedia.org/w/Atrium_System) / [`Kingenic`](https://pluralpedia.org/w/Kingenic) system of 200+ alters!! 20+ with a child! Ive also been in regis since 2018/2016! <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0">
->
-> ![jumble](https://github.com/user-attachments/assets/c8eea556-ca2e-4714-ab28-dc75d654baba) **►** **(╥﹏╥)** **`BPD/NPD/`[`HPD`](https://my.clevelandclinic.org/health/diseases/9743-histrionic-personality-disorder)`/ADHD`** <ins>**~~||~~**</ins> *`Dyslexia/Autism/Schizophrenia`* <ins>**~~||~~**</ins> **[`Periodic paralasys`](https://en.wikipedia.org/wiki/Periodic_paralysis)/[`MCI`](https://www.ucsfhealth.org/conditions/mild-cognitive-impairment)**  
->
-> **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*ca***rr***d*!](https://thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> [**r***e****nt****ry*](https://rentry.co/AMERlCANlDlOT) <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a> [**s***t~~raw~~*page](https://taste-of-flesh.straw.page/) <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> [**at**~~**abo**~~*ok*](https://cannibalisticmindset.atabook.org/)
-> 
-> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> ;
->
-> [**`Proship Info`**](https://proshipresourcesaccessible.carrd.co/#) <ins>**`////`**</ins> [**`Proship Info 2`**](https://define-proship.carrd.co/) <ins>**`////`**</ins> [**`Endo Info`**](https://powertotheplurals.com/origin-of-endogenic-and-traumagenic-system-terminology-guest-post-by-the-trashcan-collective/) <ins>**~~////~~**</ins> [**`Endo Info 2`**](https://endoresource.carrd.co/#studies) <ins>**`////`**</ins> [**`Paraphilia Info`**](https://www.psychiatry.org/File%20Library/Psychiatrists/Practice/DSM/APA_DSM-5-Paraphilic-Disorders.pdf)
->
-> <p align="left">
->   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
->     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=e0006c&bar_color_cover=true">
->   </a>
-> </p>
-***
-## <p align="center"> ${\textsf{\color{#ff0400}userboxes by me!}}$ ${\textsf{\color{#ff4340}:3 free to use [link git to credit]}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
-
-<p align="center"> <img width="700" height="300" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/3e1d8f3d-996d-42ca-b59f-75e65e6562f3" /> </p>
+<img width="410" height="150" alt="tumblr_d00ac06c4726652924ad7aa359254c3d_e3a6b3bd_400" src="https://github.com/user-attachments/assets/57e08179-245b-4a39-b684-265da55d8258" />
 
 
-<p align="center"> <img width="600" height="383" alt="image" src="https://github.com/user-attachments/assets/e6bcaa87-145d-4429-98b7-d4a438b3134f" /> </p>
-<p align="center"> <img width="600" height="383" alt="image" src="https://github.com/user-attachments/assets/bc52898c-b8aa-4388-b651-6dfacf2dfa00" /> </p>
+## ${\textsf{\color{#ff0400}userboxes by me}}$ ${\textsf{\color{#ff4340}:3 free to use [link git to credit]}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+
+<img width="600" height="200" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/3e1d8f3d-996d-42ca-b59f-75e65e6562f3" />
 
 
-<p align="center"> <img src="https://i.ibb.co/b40Hrfp/divider.gif" alt="divider" border="0"> </p>
+<img width="500" height="283" alt="image" src="https://github.com/user-attachments/assets/e6bcaa87-145d-4429-98b7-d4a438b3134f" />
+<img width="500" height="283" alt="image" src="https://github.com/user-attachments/assets/bc52898c-b8aa-4388-b651-6dfacf2dfa00" />
 
-## <p align="center"> ${\textsf{\color{#ff0400}Valentino graphic by me!}}$ ${\textsf{\color{#ff4340}:3 free to use [link git to credit]}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
+<img width="410" height="150" alt="stars" src="https://github.com/user-attachments/assets/f12337a7-e132-4c20-b689-6fd2f7375080" />
 
-![valentino graphic](https://github.com/user-attachments/assets/4f2d3efb-7926-46ac-98de-121bd02c1fe1)
+![heels-ezgif com-resize](https://github.com/user-attachments/assets/42bb2195-108d-4da5-8faf-1532aaca9d15)
 
-#### <p align="center"> ${\textsf{\color{#227880}Graphic by}}$ [this person](https://github.com/hexcorez) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
-
-<p align="center"> <img width="1500" height="1000" alt="Untitled181_20251029083221" src="https://github.com/user-attachments/assets/0ce9d554-312d-42e0-be64-4218523b5ab8" /> </p>
+<img width="410" height="150" alt="tumblr_d00ac06c4726652924ad7aa359254c3d_e3a6b3bd_400" src="https://github.com/user-attachments/assets/57e08179-245b-4a39-b684-265da55d8258" />
 
 
-**◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
+![tumblr_cdd21b2827e83e9494f7bc659c4afb40_c3b3dfb9_400](https://github.com/user-attachments/assets/e8bba92f-19bf-438e-9198-e5d709544278)
+
+![tumblr_c29fec7f0a72f8984792f8c6df5631ac_baf49931_400-ezgif com-overlay](https://github.com/user-attachments/assets/16e1e597-8f0e-403c-b575-32f8747b7f5a)
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#ee7498}✤ ‧ —– • Flags • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#46b7c2}✤ ‧ —– • Flags • —– ٠ ✤ }}$</summary> 
 
 <img width="70" height="120" alt="image" src="https://github.com/user-attachments/assets/8799d494-0ded-4342-8ec5-acac415eccb1" />
 <img width="65" height="105" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
@@ -124,7 +112,7 @@
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#733b52}✤ ‧ —– • Gallery • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#3ea6b0}✤ ‧ —– • Gallery • —– ٠ ✤ }}$</summary> 
 
 
 ![nyan-cat-ezgif com-resize (1)](https://github.com/user-attachments/assets/1033617f-9473-4b69-ae60-46e99c158b41)
@@ -190,7 +178,7 @@
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#5a9453}✤ ‧ —– • Stamps [warning!] • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#3798a1}✤ ‧ —– • Stamps [warning!] • —– ٠ ✤ }}$</summary> 
 
 *`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`*
 ### ***ALL*** Valentino stamps below by me FTU wth CREDIT {lnk git}
@@ -276,7 +264,7 @@
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#227880}✤ ‧ —– • Blinkies [warning!] • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#2e848c}✤ ‧ —– • Blinkies [warning!] • —– ٠ ✤ }}$</summary> 
 
 ` ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
  
@@ -483,9 +471,19 @@
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#ffea60}✤ ‧ —– • Other Shit [MEGA warning!!] • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#246e75}✤ ‧ —– • Other Shit MEGA warning!!!] • —– ٠ ✤ }}$</summary> 
  
 `▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
+
+## <p align="center"> ${\textsf{\color{#ff0400}Valentino graphic by me!}}$ ${\textsf{\color{#ff4340}:3 free to use [link git to credit]}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
+
+![valentino graphic](https://github.com/user-attachments/assets/4f2d3efb-7926-46ac-98de-121bd02c1fe1)
+
+#### <p align="center"> ${\textsf{\color{#227880}Graphic by}}$ [this person](https://github.com/hexcorez) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
+
+<p align="center"> <img width="1500" height="1000" alt="Untitled181_20251029083221" src="https://github.com/user-attachments/assets/0ce9d554-312d-42e0-be64-4218523b5ab8" /> </p>
+
+> <img src="https://i.ibb.co/NdBbSx0T/scene2.gif" alt="scene2" border="0">
 
 ### First ***6*** userboxes below by me FTU wth CREDIT {lnk git}
 
@@ -616,4 +614,3 @@ alt="68747470733a2f2f692e6962622e636f2f796b32433164302f424154534849542d756e68696
 
 `▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
 </detail>
-
