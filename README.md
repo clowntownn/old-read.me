@@ -2,6 +2,7 @@
 
 <img width="848" height="505" alt="sallyfacebanner" src="https://github.com/user-attachments/assets/f20675b6-7915-480e-967b-52ad91a36d3e" />
 
+**heading graphic from @chuusarahabaki on tumblr**
 
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 <details>
@@ -35,6 +36,12 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{#400669}Education / My Sites}}$ ღ </summary> <a href="https://thesinsofyourfleshmayburnyou.carrd.co"><i>carrd</i></a> <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> <a href="https://rentry.co/AMERlCANlDlOT"><i>rentry</i></a> <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a> <a href="https://taste-of-flesh.straw.page"><i>strawpage</i></a> <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> <a href="https://cannibalisticmindset.atabook.org"><i>atabook</i></a> <br> <a href="https://proshipresourcesaccessible.carrd.co/#"><strong><code>Proship Info</code></strong></a> <ins><strong><s>///</s></strong></ins> <a href="https://define-proship.carrd.co/"><strong><code>Proship Info 2</code></strong></a> <br> <a href="https://powertotheplurals.com/origin-of-endogenic-and-traumagenic-system-terminology-guest-post-by-the-trashcan-collective/"><strong><code>Endo Info</code></strong></a> <ins><strong><s>///</s></strong></ins> <a href="https://endoresource.carrd.co/"><strong><code>Endo Info 2</code></strong></a> <br> <a href="https://www.psychiatry.org/File%20Library/Psychiatrists/Practice/DSM/APA_DSM-5-Paraphilic-Disorders.pdf"><strong><code>Para Info</code></strong></a> <br> </details>
 
 ![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)
+
+<p align="left">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
+     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=e0006c&bar_color_cover=true">
+   </a>
+</p>
 
 «« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
 
