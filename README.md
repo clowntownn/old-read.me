@@ -4,8 +4,6 @@
 <img width="848" height="505" alt="sallyfacebanner" src="https://github.com/user-attachments/assets/f20675b6-7915-480e-967b-52ad91a36d3e" />
 
 
-### ${\textsf{\color{#dc1717}graphic from @chuusarahabaki on tumblr}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
-
 
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 <details>
@@ -20,25 +18,21 @@
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 
 
+<p align="right"> " Call us <img src="https://i.ibb.co/mCSQ5g5q/emo2.gif" alt="emo2" border="0"> <ins><strong><s>///</s></strong></ins> ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> <ins><strong><s>///</s></strong></ins> ${\textsf{\color{#6E3FA3}Bittergiggle}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> <ins><strong><s>///</s></strong></ins> ${\textsf{\color{#ffffff}Lamb}}$ or ${\text{\color{#615c4c}Rat}}$ 🐑🐀 </p>
 
-<a href="https://ibb.co/DPtQRg61"><img src="https://i.ibb.co/0pcrGVWn/tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75.webp" alt="tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75" border="0"></a> <img src="https://i.ibb.co/tpTTRVLp/caution-explicit.jpg" alt="caution-explicit" border="4">
-**(˵ •̀ ᴗ - ˵ )** ─────────»» ★ <a href="https://tamanotchi.world/27236c"><img src="https://tamanotchi.world/i/27236" alt="It's tamaNOTchi! Click to feed!"></a> <sub><sub> « <ins>*hubert*</ins> *&* <ins>*gerbt*</ins> » <sub><sub> <a href="https://tamanotchi.world/27238c"><img src="https://tamanotchi.world/i/27238" alt="It's tamaNOTchi! Click to feed!"></a> <sub><sub> *&* <ins>*bob*</ins> <sub><sub> <a href="https://tamanotchi.world/27254c"><img src="https://tamanotchi.world/i/27254" alt="It's tamaNOTchi! Click to feed!"></a>
->
-> " Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ <img src="https://i.ibb.co/mCSQ5g5q/emo2.gif" alt="emo2" border="0"> **`///`** ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** ${\textsf{\color{#6E3FA3}Bittergiggle}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> **`///`** ${\textsf{\color{#ffffff}Lamb}}$ or ${\text{\color{#615c4c}Rat}}$ 🐑🐀
->
->   "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}garten of banban}}$ <ins>**~~||~~**</ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` <ins>**~~||~~**</ins> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins>**~~||~~**</ins> ${\textsf{\color{#ffffff}cult of the lamb}}$ 🐑🐏
->
-><img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` <ins>**~~||~~**</ins> ${\textsf{\color{#93dbe6}sally face}}$ <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> <ins>**~~||~~**</ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> `rick and morty` <ins>**~~||~~**</ins> ${\textsf{\color{#fc0349}valentine [hazbin hotel]}}$ ![heart](https://github.com/user-attachments/assets/3a3c7ee1-e2d0-40a1-9018-14ceb322d058)
->
->
->«« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
->
-> *I am* [`Radqueer`](https://transid.org/books/stances/page/radqueer) *aswell as* <img width="48" height="29" alt="transsallyface1" src="https://github.com/user-attachments/assets/4f9ad583-e395-4f9e-870f-37216b99fac3" /> [`TransSallyFace`](https://transid.org/books/transcharacter-transperson/page/transsallyface) <ins>**~~/~~**</ins> [`TransLamb`](https://transid.org/books/transspecies/page/transsheep) <img width="45" height="27" alt="translamb1" src="https://github.com/user-attachments/assets/210b540f-24f6-4b73-bddc-3a52f38b40d9" />
->
-> *No contact for harmful paras aswell as pro-recovery for them. I am neu transid, I dont care if your transharmful, I simply dont want to hear about it. I do **not** claim the [xenosatanists](https://transid.org/books/stances/page/xenosatanism) as part of it nor do i support them*
->
->«« <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> »»
-> 
+<p align="right">"<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}garten of banban}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` <ins><strong><s>||</s></strong></ins> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#ffffff}cult of the lamb}}$ 🐑🐏</p>
+
+<img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#93dbe6}sally face}}$ <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> `rick and morty` <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#fc0349}valentine [hazbin hotel]}}$ ![heart](https://github.com/user-attachments/assets/3a3c7ee1-e2d0-40a1-9018-14ceb322d058)
+
+
+«« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
+
+*I am* [`Radqueer`](https://transid.org/books/stances/page/radqueer) *aswell as* <img width="48" height="29" alt="transsallyface1" src="https://github.com/user-attachments/assets/4f9ad583-e395-4f9e-870f-37216b99fac3" /> [`TransSallyFace`](https://transid.org/books/transcharacter-transperson/page/transsallyface) <ins>**~~/~~**</ins> [`TransLamb`](https://transid.org/books/transspecies/page/transsheep) <img width="45" height="27" alt="translamb1" src="https://github.com/user-attachments/assets/210b540f-24f6-4b73-bddc-3a52f38b40d9" />
+
+*No contact for harmful paras aswell as pro-recovery for them. I am neu transid, I dont care if your transharmful, I simply dont want to hear about it. I do **not** claim the [xenosatanists](https://transid.org/books/stances/page/xenosatanism) as part of it nor do i support them*
+
+«« <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> »»
+ 
 > <img src="https://i.ibb.co/39D529VX/weppon-blood.webp" alt="weppon-blood" border="0"> 
 >
 >   **<img src="https://i.ibb.co/fzKKySnQ/drums.gif" alt="drums" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** [`nameself pronouns`](https://pronoun.fandom.com/wiki/Nameself_Pronouns) <img src="https://i.ibb.co/2YdfQLWt/games-pkm2.gif" alt="games-pkm2" border="0"> 
