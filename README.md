@@ -25,7 +25,7 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{#61109c}About me}}$ ღ </summary> <a href="https://pluralpedia.org/w/Traumagenic"><code>Traumagenic</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Atrium_System"><code>Atrium</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Kingenic"><code>Kingenic</code></a> <i>system of 200+ alters!!</i> <br> <i>20+ with a child! Ive also been in regis since 2018/2016! <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0"></i>ㅤ<br> <strong><code>BPD/NPD/<a href="https://my.clevelandclinic.org/health/diseases/9743-histrionic-personality-disorder">HPD</a>/ADHD</code></strong> <ins><strong><s>||</s></strong></ins> <code>Dyslexia/Autism/Schizophrenia</code> <br> <strong><code><a href="https://en.wikipedia.org/wiki/Periodic_paralysis">Periodic paralasys</a><strong>/</strong><a href="https://www.ucsfhealth.org/conditions/mild-cognitive-impairment">MCI</a></strong></code> <br> </details>
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#580b8f}Collective Yumes}}$ ღ </summary> ${\textsf{\color{#4dff00}Rick Sanchez}}$ <strong>/</strong> <ins><code>Morty Smith</code></ins> <strong>/</strong> ${\textsf{\color{#8f1106}Narinder}}$ <strong>/</strong> <ins><code>P.T. Barnum</code></ins> <strong>/</strong> ${\textsf{\color{#852799}Hugh}}$ ${\textsf{\color{#ff2e13}Morris}}$ <br> ${\textsf{\color{#0cb323}Jacksepticeye}}$ <strong>/</strong> ${\textsf{\color{#ff00b3}Markiplier}}$ <strong>/</strong> <ins><code>Tenna</code></ins> <strong>/</strong> ${\textsf{\color{#e6e6e6}Sans}}$ <br> ${\textsf{\color{#46b7c2}Sal Fisher}}$ <strong>/</strong> ${\textsf{\color{#734927}Larry Johnson}}$ <strong>/</strong> ${\textf{\color{#7854b6}Hawkmoth}}& <br> ${\textsf{\color{#d91e1e}Alastor}}$ <strong>/</strong> ${\textsf{\color{#d91e44}Val}}$ <strong>/</strong> <ins><code>Stolas</code></ins> <strong>/</strong> ${\textsf{\color{#ff5c7c}Angel Dust}}$ <br> </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#580b8f}Collective Yumes}}$ ღ </summary> ${\textsf{\color{#4dff00}Rick Sanchez}}$ <strong>/</strong> <ins><code>Morty Smith</code></ins> <strong>/</strong> ${\textsf{\color{#8f1106}Narinder}}$ <strong>/</strong> <ins><code>P.T. Barnum</code></ins> <strong>/</strong> ${\textsf{\color{#852799}Hugh}}$ ${\textsf{\color{#ff2e13}Morris}}$ <br> ${\textsf{\color{#0cb323}Jacksepticeye}}$ <strong>/</strong> ${\textsf{\color{#ff00b3}Markiplier}}$ <strong>/</strong> <ins><code>Tenna</code></ins> <strong>/</strong> ${\textsf{\color{#e6e6e6}Sans}}$ <br> ${\textsf{\color{#46b7c2}Sal Fisher}}$ <strong>/</strong> ${\textsf{\color{#734927}Larry Johnson}}$ <strong>/</strong> ${\textsf{\color{#7854b6}Hawkmoth}}$ <br> ${\textsf{\color{#d91e1e}Alastor}}$ <strong>/</strong> ${\textsf{\color{#d91e44}Val}}$ <strong>/</strong> <ins><code>Stolas</code></ins> <strong>/</strong> ${\textsf{\color{#ff5c7c}Angel Dust}}$ <br> </details>
     
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#4b0a7a}Things I like}}$ ღ </summary> "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}garten of banban}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> <code>pokemon[mimikyu]</code> <br> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#ffffff}cult of the lamb}}$ 🐑🐏ㅤ<br>  <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> ${\textsf{\color{#93dbe6}sally face}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> <code>undertale</code> <br> ${\textsf{\color{#fc0349}valentine [hazbin hotel]}}$ 🖤 <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> <code>rick and morty</code> <br> </details>
@@ -53,7 +53,7 @@
 <img width="410" height="150" alt="tumblr_d00ac06c4726652924ad7aa359254c3d_e3a6b3bd_400" src="https://github.com/user-attachments/assets/57e08179-245b-4a39-b684-265da55d8258" />
 
 
-## ${\textsf{\color{#ff0400}userboxes by me}}$ ${\textsf{\color{#ff4340}:3 free to use [link git to credit]}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+## ${\textsf{\color{#ff0400}userboxes, and hawkmoth graphic by me}}$ ${\textsf{\color{#ff4340}:3 free to use [link git to credit]}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 
 <img width="600" height="200" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/3e1d8f3d-996d-42ca-b59f-75e65e6562f3" />
 
@@ -68,9 +68,8 @@
 <img width="410" height="150" alt="tumblr_d00ac06c4726652924ad7aa359254c3d_e3a6b3bd_400" src="https://github.com/user-attachments/assets/57e08179-245b-4a39-b684-265da55d8258" />
 
 
-![tumblr_cdd21b2827e83e9494f7bc659c4afb40_c3b3dfb9_400](https://github.com/user-attachments/assets/e8bba92f-19bf-438e-9198-e5d709544278)
+![hawkmoth graphic](https://github.com/user-attachments/assets/335f4480-2b39-4738-ac68-c70360018e3a)
 
-![tumblr_c29fec7f0a72f8984792f8c6df5631ac_baf49931_400-ezgif com-overlay](https://github.com/user-attachments/assets/16e1e597-8f0e-403c-b575-32f8747b7f5a)
 
 <div align="left">
 <details>
